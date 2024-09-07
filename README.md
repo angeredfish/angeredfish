@@ -1,1 +1,1 @@
-[![IMG-0926.gif](https://i.postimg.cc/pLtV2pqq/IMG-0926.gif)](https://postimg.cc/ppqMCXNF)
+[![IMG-0928.gif](https://i.postimg.cc/pVFpRbPV/IMG-0928.gif)](https://postimg.cc/CdwFs2Z9)
