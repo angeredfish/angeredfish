@@ -1,5 +1,5 @@
 <p align="center">
-ꪆৎ⠀i love him 
+ꪆৎ⠀i love them 
   
 [![IMG-1015.gif](https://i.postimg.cc/Y2J8kV8F/IMG-1015.gif)](https://postimg.cc/Jt5j5pf7)
-[![IMG-1018.gif](https://i.postimg.cc/vBnh6tZT/IMG-1018.gif)](https://postimg.cc/PptYgZZn)
+[![IMG-1017.gif](https://i.postimg.cc/k5NgmFMM/IMG-1017.gif)](https://postimg.cc/gwJWyh61)
