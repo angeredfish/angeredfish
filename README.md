@@ -1,4 +1,4 @@
 <p align="center">
-lalala
+we'll meet again in another universe
 
-[![IMG-1015.gif](https://i.postimg.cc/Y2J8kV8F/IMG-1015.gif)](https://postimg.cc/Jt5j5pf7)
+[![IMG-1249.gif](https://i.postimg.cc/MpGF43ch/IMG-1249.gif)](https://postimg.cc/WhQ8qnwn)
